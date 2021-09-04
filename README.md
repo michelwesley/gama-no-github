@@ -1,1 +1,0 @@
-Até o momento, o curso esta muito bom, as aulas são bem explicadas pelo prof.
